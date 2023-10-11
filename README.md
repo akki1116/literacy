@@ -1,3 +1,3 @@
-# literacy
+I love [Wikipedia](https://ja.wikipedia.org)!
 
-学籍番号2342107
+[テキスト](https://www.google.co.jp)
